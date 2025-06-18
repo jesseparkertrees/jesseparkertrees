@@ -1,4 +1,4 @@
-MS Forestry student in the School of Natural Resources at the University of Tennessee
+MS Forestry student in the School of Natural Resources at the University of Tennessee \
 _Quercus_, hybridization, forest/ conservation genetics
 
 <!---
